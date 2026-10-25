@@ -6,5 +6,4 @@ I'm interested in network security, threat detection, and all things blue team. 
 
 ### 🕷️ Fun Facts
 - I love spiders, especially tarantulas!
-- JDM cars are peak. 🏎️
-- I have a thing for black cats. 🐈‍⬛
+- I love JDM cars 🏎️
